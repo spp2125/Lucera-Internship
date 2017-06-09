@@ -1,1 +1,0 @@
-# Lucera-Internship
